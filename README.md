@@ -1,7 +1,7 @@
 # Bachelor Month
 ## Foods I must eat
 * Doughnut Plant
-* Loaded Pizz
+* Loaded Pizza
 
 ## Necessary Beers
 * Imperial Stout
