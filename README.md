@@ -6,3 +6,6 @@
 ## Necessary Beers
 * Imperial Stout
 * Belgian Trippel Ale
+
+## Movies/Television
+* Netflix
