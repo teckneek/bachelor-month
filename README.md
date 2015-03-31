@@ -13,3 +13,5 @@
 ## Entertainment
 * 4/10 - All-night Marvel Daredevil Netflix marathon
 * Tenative - Game Night
+* Saturday in May - Six Flag
+* 5/4 - May the 4th
